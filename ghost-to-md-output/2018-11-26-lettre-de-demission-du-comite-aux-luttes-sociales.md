@@ -1,0 +1,166 @@
+---
+title: "Lettre de démission du comité aux luttes sociales: Problématiques, réflexions et recommandations"
+slug: lettre-de-demission-du-comite-aux-luttes-sociales
+date_published: 2018-11-26T14:51:12.000Z
+date_updated: 2018-12-02T01:21:15.000Z
+tags: ASSÉ, Démocratie, Féminismes, Mouvement étudiant, Rapport de pouvoir
+excerpt: Malgré les valeurs de justice sociale qui sont mises de l’avant, il y a une difficulté à l’intérieur de ces structures d’incarner ces mêmes valeurs. Cette démission.zine soulève des problématiques, partage des réflexions et propose des recommandations. 
+---
+
+Par Myriam Tardif, Rushdia Mehreen et Beatriz Munoz
+[Téléchargez en format zine](http://rushdia.virtualstack.com/wp-content/uploads/2013/02/zine-démission-comité-aux-luttes-sociales-2013.pdf) ([English translation](https://dissident.es/assez-luttes-sociales/))
+
+<< Même si ce n’est peut-être pas pertinent dans le context de l’ASSÉ aujourd’hui, c’est évident avec toutes les demandes pour sa (re)publication ces reflexions sont assez pertinentes un peu partout. - nov 2018 >>
+
+Février 2013
+
+*Aux étudiantes et aux étudiants membres de l’ASSÉ, à tous ceux et celles avec qui nous avons partagé des moments intenses dans les derniers mois…*
+
+Ça fait déjà un moment que nous fréquentons le mouvement étudiant québécois, tout particulièrement celui qui gravite autour de l’ASSÉ. Nous avons été agréablement surprises et fières de ce que nous avons pu réaliser ensemble. La grève, oui; mais aussi tout le travail accompli à travers des principes de démocratie directe afin de faire vivre ces principes et ces revendications que nous avons adoptés ensemble.
+
+Comme plusieurs, nous sommes habitées par le désir profond d’incarner un changement social radical, pour un monde plus juste et égalitaire; et ce tant dans le monde de l’éducation que dans la société en général, et à travers les années, ensemble, nous avons réussi à rassembler un grand nombre de personnes autour de ces pratiques et valeurs progressistes.
+
+C’est ce qui nous a donné envie, chacune à des moments et pour des raisons différentes, de s’impliquer dans l’équipe nationale de l’ASSÉ, question de mettre de l’eau au moulin de cette belle machine contestataire.
+
+Cependant, bien que ces principes soient toujours aussi importants pour nous et que nous croyons que l’ASSÉ et les militantes et militants qui la forment ont le potentiel d’accomplir de grandes choses, pour nous, la lune de miel est terminée.
+
+Malgré les valeurs de justice sociale qui sont mises de l’avant par l’ASSÉ, il y a une difficulté à l’intérieur de ces structures d’incarner ces mêmes valeurs. Nous sommes des personnes engagées dans des luttes aux facettes diverses qui s’ancrent dans des valeurs anti-oppression… et malheureusement il semble que pour nous il est présentement impossible de faire ce travail à l’intérieur de l’ASSÉ.
+
+Nous avons énormément de respect et d’admiration pour les militantes et les militants de l’ASSÉ et nous pensons que cette organisation saura se transformer. Si nous écrivons cette lettre.zine, c’est dans le but de partager avec vous nos expériences et les problématiques que nous avons vécues au cours des derniers mois afin de susciter des réflexions. Peut-être que cela pourra aussi aider à jeter un nouvel éclairage sur les diverses démissions qui ont eu lieu au cours des derniers mois (et à travers les années).
+
+Bref, ami.e.s, collègues, camarades, nous démissionnons du comité aux luttes sociales.
+
+Rappelez-vous en lisant notre lettre que ce n’est pas le fait de nommer un problème qui le fait exister, au contraire, c’est en ouvrant la communication sur des enjeux parfois complexes et tortueux que nous pouvons trouver des solutions. Bref, bien que des sujets épineux et difficiles seront abordés, notre objectif n’est en aucun cas d’attaquer, d’insulter ou d’humilier qui que ce soit.
+
+Ce processus vise plutôt à rendre compte d’événements qui sont arrivés et d’oppressions qui ont été vécues afin que l’on puisse les nommer et les analyser dans le but de trouver des solutions collectivement. Loin de nous l’idée de jeter un voile de honte sur le travail de nos camarades, ce que nous voulons, c’est ouvrir un dialogue pour permettre une transformation de nos pratiques. Nous avons mis beaucoup d’énergie à écrire ce texte afin que notre message soit reçu sans se heurter à des levées de bouclier et que l’on puisse ouvrir le débat. C’est pourquoi à la fin de cette lettre, nous proposerons des pistes de réflexion pour dépasser ces problématiques et nous amènerons des débuts de recommandations.
+
+Malgré l’adage qui dit qu’on ne doit pas tenter de changer ceux et celles qu’on aime, nous croyons qu’il y a encore beaucoup de chemin à faire pour que l’ASSÉ se transforme en un espace réellement inclusif, solidaire, émancipateur et où la militance serait vraiment agréable. C’est pour cette raison que notre démission prend la forme d’une lettre.zine de réflexion pour le congrès d’orientation : nous croyons que cela pourrait apporter des éléments importants dans le but de repenser le travail qui se fait à l’ASSÉ.
+
+ps. Nous avons choisi le format lettre.zine pour que cela traverse le temps et l’espace, et pour que cette réflexion puisse servir à plusieurs personnes. (et aussi peut-être parce que c’est plus accessible et agréable à lire)
+
+* * *
+
+LE COMITÉ AUX LUTTES SOCIALES
+
+Pour ceux et celles qui ne nous connaissent pas, sachez que le comité aux luttes sociales était composé depuis juin dernier de deux élues et de quelques collaboratrice et collaborateurs.
+
+Notre petit comité était composé majoritairement de femmes étudiant au 1er et au 2e cycle, provenant de l’UQAM, Concordia et de l’Université de Montréal, en linguistique, en géographie/urbanisme et en anthropologie. Nous sommes des personnes de langues et d’origines diverses.
+
+IL ÉTAIT UNE FOIS
+
+Le Comité aux luttes sociales (CLS) tentait d’apporter à l’intérieur de l’ASSÉ des analyses anti-oppression, anti-racistes, anti-coloniales, anti-impérialistes et bien d’autres, afin d’alimenter la réflexion de l’organisation sur la conjoncture sociale québécoise et le contexte mondial. Par notre travail, nous avons tenté de créer des liens entre les enjeux qui touchent l’éducation et les nombreuses luttes qui traversent nos vies. Par le fait même, le comité a parfois apporté des critiques sur le fonctionnement interne de l’association, ce qui est selon nous essentiel pour une organisation progressiste afin de s’assurer que nos pratiques correspondent à nos idéaux.
+
+Cependant, nous avons déjà entendu des commentaires décrivant ce comité comme un groupe affinitaire. Notre hypothèse est qu’il s’agissait d’un des seuls comités à l’ASSÉ qui travaillait sur des projets en dehors des lignes directrices de la campagne nationale. Non, nous ne produisions pas les affiches des manifestations et nous ne faisions pas que « créer des relations internationales pour l’ASSÉ », mais ce travail de vigilance et d’élargissement social de la lutte était tout aussi important selon nous.
+
+Cette situation nous a laissé l’étrange impression d’être considérées comme des outsiders. Pourquoi ? Nous ne le savons pas exactement… Parce que nous n’étions pas des gens fréquentant les mêmes cercles d’amis? Parce que nous venions d’autres milieux? Ce que nous savons, c’est que lorsque venait le temps de présenter ou de faire approuver nos projets, il fallait beaucoup plus d’énergie et de préparation que pour d’autres comités… sauf si les propositions étaient amenées par des personnes charismatiques ou disposant déjà de beaucoup de capital social dans l’organisation.
+
+Nous avions l’impression que certains mandats de l’ASSÉ ont été et sont encore folklorisés, dans le sens qu’ils servent surtout de décorations. On les dépoussière une fois de temps en temps, quand c’est gagnant, et sinon, on reste sur la ligne directrice ; la gratuité scolaire. Bien sûr, il est normal que la majorité de l’énergie soit mise sur cette lutte, après tout il s’agit de notre campagne nationale. Cependant, si nous voulons vivre en cohérence avec nos valeurs et principes, nous devons concevoir la gratuité scolaire comme projet dans une perspective féministe, anti-raciste, anti-oppression, anti-impériale, anti-coloniale…etc etc etc. Il ne s’agit pas de luttes secondaires, ce sont des analyses que nous devons faire vivre dans tous nos projets. Parfois, lorsque nous amenions ces critiques, nous avons eu l’impression de n’être pas entendues. On s’est aussi déjà fait reprocher de ne simplement pas comprendre la stratégie. Rappelons que ces critiques ne sont pas des attaques; ces critiques viennent du désir d’améliorer l’organisation. Elles cherchent à être constructives plutôt que destructives.
+
+On s’est fait aussi quelque fois reprocher de ne rien faire ou de n’être pas assez actives. Souvent le mythe historique voulant que le comité luttes sociales n’ait jamais rien fait de significatif était évoqué dans les discussions informelles. Est-ce vrai, ou serait-ce plutôt le résultat d’une très mauvaise communication entre ses membres et ceux et celles des autres comités ?
+
+Peut-être est-ce qu’il serait intéressant ici d’intégrer la définition et les mandats du comité aux luttes sociales : 
+
+> « Il voit au développement d’un réseau de communication et d’action avec les autresorganisations syndicales et communautaires pertinentes du Québec et d’ailleurs, de même qu’avec les organisations étudiantes au niveau international. Pour ce faire, le Comité assure la présence de l’ASSÉ aux diverses réunions d’organisation et effectue le suivi avec les instances concernées (Congrès, Conseil de Coordination, Conseil exécutif). Il effectue aussi des recherches afin d’alimenter la réflexion de l’organisation sur la conjoncture sociale québécoise et le contexte mondial. Le Comité travaille en étroite collaboration avec le ou la Secrétaire aux relations externes et le ou la Secrétaire aux communications en ce qui a trait au suivi de l’actualité sociale. » (Statuts et règlements de l’ASSÉ p.18)
+
+Nous croyons avoir travaillé avec ardeur à la réalisation de ces mandats, vous pourrez le constater en vous référant aux deux bilans que nous avons produits entre juillet et décembre 2012. Dans un monde idéal, nous aurions préféré pouvoir travailler davantage à faire de la recherche, mais les effectifs réduits du comité nous ont empêché de mettre ce projet à l’avant plan.
+
+De plus, nous avons perçu un certain mépris envers les étudiant-e-s racisé-e-s, allophones ou anglophones; comme si leur capacité à bien comprendre les enjeux et les débats était mis en doute, entre autre lors des conseils de coordination. Certain.e.s ont eu l’impression d’être considéré-e-s comme moins intelligent.e.s, du fait de la différence de langue ou de la façon de s’exprimer. Peut-être que ces personnes n’ont pas la même expérience que d’autres dans les milieux militants francophones, mais leur vécus et expériences d’implication sociale sont tout aussi valables. Et surtout, ça ne veut pas dire qu’ils et elles n’ont pas les mêmes idées ou les mêmes capacités de réflexions que d’autres.
+
+Nous avons eu l’impression qu’on s’adressait toujours prioritairement aux personnes blanches du comité… serait-ce parce que la communication semblait facile avec eux et elles ? Comment peut-on diversifier les élues de l’équipe nationale et les exécutant-e-s des associations étudiantes ? Pourquoi ne voit-on pas d’étudiant-e-s racisé-e-s au congrès et dans les autres instances et activités de l’ASSÉ, alors qu’ils et elles sont nombreux et nombreuses dans nos collèges et universités membres ? Quelle place ouvre-t-on pour eux et elles ? L’expérience des personnes racisé.e.s/non-francophones du comité aux luttes sociales et d’autres étudiantes et étudiants que nous connaissons nous laisse croire qu’il n’y aurait pas beaucoup d’ouverture pour eux et elles.
+
+Les membres racisé-e-s du Comité aux luttes sociales hésitaient systématiquement à aller au Conseil de Coordination . Y aller était comme une punition (beaucoup plus que pour les autres élu.e.s non-racisé-e-s). L’ambiance et les rapports de domination vécus lors de cette instance sont clairement des éléments sur lesquels réfléchir pour les améliorer. Un.e gardien.ne du senti pourrait certainement contribuer à aider certains de ces éléments. Dans un monde idéal, bien sûr, nous devrions toutes et tous être conscient-e-s de ce qu’on dit et de comment ça peut heurter des gens, mais bon, si on trouve que c’est nécessaire d’avoir des gardien.ne.s du senti lors des congrès, il devrait absolument y en avoir un.e au conseil de coordination.
+
+Dans d’autres communications entre les militant-e-s, en personne ou sur la liste de diffusion de l’ASSÉ, on soulève la question de la prise de décisions au conseil de coordination. Si nous nous penchons sur cet aspect, il faut absolument se pencher sur les rapports de pouvoir et de dominations perçues et vécues ; des ancien-ne-s versus les nouveaux et nouvelles, des francophones versus les non-francophones, des comités et conseils ayant un capital social prédominant versus d’autres, etc.
+
+Aussi, simplement l’existence d’un « comité aux luttes sociales » nous sonne une cloche. Un peu comme l’existence du comité femmes (Vous pourrez voir leurs réflexions similaires dans leurs différentes lettres de démission ces dernières années). Le fait que ces comités existent, implique que, soit l’analyse n’a pas été assez intériorisée par les membres de l’association pour qu’ils et elles y aient recours systématiquement sans la présence d’un comité qui s’y penche, ou peut aussi nuire à cette intériorisation en donnant l’impression que ce comité se chargera de faire le travail.
+
+Nous devons réfléchir à savoir comment collectivement nous voulons incarner ces valeurs, féministes, anti-oppression, anti-raciste ? Il faudra bien sûr de la pédagogie et une bonne diffusion d’informations. C’est ce que nous avons essayé de faire, et nous espérons avoir réussit un tant soit peu. Cependant, nous ne voulons pas faire des listes d’épiceries de solidarités disant que nous sommes solidaires avec telle ou telle lutte. Nous voulons réfléchir à nos structures, à nos relations, et aussi à la place que nous faisons aux réflexions qui sortent du cadre de la lutte étudiante. Nous ne pouvons pas lutter contre tout, et ça n’est pas l’objectif, l’objectif est de changer la manière même dont nous luttons, car le plus grand changement commence là. C’est sûr que ce n’est pas facile, parce que nous vivons dans ce système, mais dans l’idéal, on devrait chercher à éviter de reproduire les mécanismes d’oppression et de violences invisibles. C’est pourquoi un argumentaire anti-oppression, anti-raciste, anti-coloniale doit être développé et vécu à l’ASSÉ de l’intérieur. Pour cela, bon, soit nous pouvons tenter d’incorporer cette analyse à tous les comités, ou accorder plus d’autonomie au comité luttes sociales.
+
+LES PROBLÉMATIQUES EN GÉNÉRAL, RAPPORTS DE POUVOIR & CIE
+
+(Les points suivants ne sont pas en ordre hiérarchique d’importance. On n’aime pas ça nous autres, la hiérarchie ! Vous non plus, nous savons…)
+
+Chère ASSÉ, nous en avons assez de ta HIÉRARCHIE. Oui oui, c’est triste je sais, mais celle-ci est sournoise, elle se glisse partout. Évidemment c’est normal, la hiérarchie fait partie inhérente du monde moderne capitaliste (ou peut-être, devrions-nous dire néo-libéral puisqu’il est mal vu de parler de capitalisme à l’ASSÉ), comme nous. Ainsi, la hiérarchie se faufile souvent au cœur même d’où nous avions tenté de la repousser.
+
+Nous trouvons que l’exécutif a trop de poids et de pouvoir. Est-ce une problématique structurelle ? Peut-être. Trop souvent à notre goût nous avons entendu des « votre rôle est de prendre des décisions ! Interpréter vos mandats ! » lors de congrès, ou des « Vous n’avez pas de mandats pour prendre ces décisions », dépendamment de ce que les têtes pensantes veulent faire adopter comme ligne directrice de l’organisation. Quelques événements nous sont restés en travers de la gorge.
+
+Le manifeste de l’été 2012. En y repensant bien, n’y avait-il pas de grosses relations de pouvoir entre l’exécutif et les délégations, quand ces dernières demandaient de participer davantage au processus de rédaction et que le premier leur répondait qu’ils et elles ne leur faisaient pas assez confiance, que ce serait trop long, qu’il fallait les « laisser-faire » ?
+
+Et la participation au sommet. Nous nous excusons de revenir là-dessus, nous savons qu’on ne veut plus en parler, mais nous en avons entendu des vertes et des pas mûres. Lors du congrès où allait être décidé la participation de l’ASSÉ aux Sommets de l’éducation supérieure du PQ, certain-e-s membres de l’exécutif national ont pris beaucoup de place au micro pour expliquer aux délégations des associations membres comment celles-ci devraient voter. « Pas besoin de mandats, votre job c’est de prendre des décisions. Je vais vous montrer comment voter. Dépêchez-vous. » L’exécutif, ou n’importe quel exécutif évidemment, a en soi, un grand pouvoir symbolique et culturel. Il exerce beaucoup d’influence. Évidemment, c’est une relation à deux, nous ne pensons pas que les délégations ont obéit les yeux fermées, mais dans le doute, nous émettons certaines réserves…
+
+De plus, les relations entre les comités, entre les membres des comités et l’exécutif, que ce soit dans les conseils de coordination ou ailleurs, dépendent beaucoup des personnalités de chacun et de chacune. Ce n’est pas tout le monde qui peut bien s’entendre, nous en sommes conscientes. Par contre, nous croyons que tout le monde devrait pouvoir se sentir à l’aise de militer ensemble, même s’il ne s’agit pas de grands ami-e-s, et ainsi, il faudrait peut-être penser à des structures permettant de nuancer les relations de pouvoir basées sur l’amitié ou le manque d’affinités.
+
+Il s’agit des mêmes relations que nous avons pu observer dans les conseils de coordinations (COCOs). De plus, dans une petite salle avec moins de monde, où les gens se connaissent, les relations de pouvoir sont peut-être plus aptes à se produire, certaines d’entre nous en ont fait l’expérience.
+
+Encore une fois, nous n’insinuons pas que les militant.e.s ou des élu.e.s obéissent à l’exécutif, ou que l’exécutif est une bête méchante qui tente de subordonner tout le monde à ses désirs. Mais non, sinon nous ne prendrions pas la peine de vous écrire. C’est bien là le concept de Bourdieu non ? La violence symbolique, celle qui s’exerce de manière invisible, sans être voulue, ni perçue…peut-être que nous reléguons trop de poids (ce qui peut d’ailleurs être lourd à porter, j’imagine qu’ils et elles se reconnaîtront) à ce comité exécutif, et que finalement, on se dit qu’ils et elles sont les mieux placé-e-s pour savoir quoi faire étant donné que ce sont eux et elles qui détiennent le plus d’informations.
+
+Parlons pour nous-même, il est difficile d’organiser des événements internationaux quand l’exécutif hésite à partager avec nous leurs contacts et réseaux à l’international, par exemple. Et combien savent qu’il existe des « wikis » pour chaque association étudiante, contenant plusieurs informations sur celles-ci ? C’est une bonne idée, mais ceux-ci devraient être publics et disponibles à tous et toutes, non ?
+
+Nous croyons que cette hiérarchie des responsabilités, des droits de veto informels et des informations est néfaste à long terme, pour tout le monde. Nous ne croyons pas que des relations patronales devraient se mettre en place dans une organisation où tout le monde veut s’engager à fond et le fait de manière bénévole.
+
+ACCUEIL ET INCLUSION
+
+Il y a aussi une problématique organisationnelle, selon nous. En ce moment, il n’y a pas de structures d’inclusion pour les militant.e.s nouveaux et nouvelles, ou simplement pour les militant.e.s différent.e.s (pour quelque raison que ce soit), qui ne correspondent pas à l’homogénéité habituelle propre à l’ASSÉ. Ce qui fait que le pouvoir reste souvent dans les mains des mêmes, ceux et celles qui ont les bons ami.e.s, des gens près des élu-e-s de l’ASSÉ. Le phénomène de clique UQAM comme on l’a appelé jadis. Nous ne croyons pas que le problème, c’est l’UQAM (on l’aime bien l’UQAM !). C’est plutôt le manque de mécanismes d’inclusion. Cela fait que ceux et celles qui ont le plus d’ami.e.s ou du moins, le meilleur charisme, les meilleures relations, gagnent un capital culturel énorme et voient leurs aspirations se réaliser très rapidement.
+
+Évidemment, les cliques, les gangs, les amitiés, c’est normal, souhaitable, génial ! Sauf que le cercle est plutôt fermé, et pour que des personnes d’autres cercles veuillent et puissent s’impliquer dans l’ASSÉ, pour que celle-ci devienne ouverte, diversifiée et hétérogène, il y a besoin d’espaces et de structures pour cela. Pour ceux et celles qui n’étaient pas au « party de la veille », c’est très difficile de faire accepter une idée nouvelle, un nouveau projet qui diverge un peu de la ligne directrice, qui n’a pas déjà été discuté au préalable autour d’une bière.
+
+Nous constatons aussi, que l’ASSÉ n’existe pas en vase clos. Nous voulons dire par là que ses militantes et militants sont tout aussi socialisé-e-s dans le monde actuel que n’importe quelle autre personne. Oui, sensibilisé, avec une belle réflexion critique, mais il est normal que les analyses féministes, anti-oppression ne soient pas complètement intégrées par tout le monde, de la même manière et à différents niveaux. C’est pourquoi nous pensons que des organes de vigilance et de critique envers les pratiques dans le mouvement étudiant, au national et au local, sont essentiels, pour l’instant. Cela n’empêche pas que nous devons collectivement travailler à une réflexion profonde sur ces relations pour les changer, pour faire advenir le changement que nous voulons voir advenir dans le monde. 
+
+PRODUCTION CAPITALISTE
+
+Il en va de même de la performance capitaliste et du désir de production. Ce n’est pas tout le monde qui peut accomplir du travail bénévole comme 10 chevaux sans dormir et sans manger (bon on exagère), est-ce que ça veut dire pour autant qu’on veut que ces personnes qui ne peuvent pas accomplir autant ne s’impliquent pas au national ? Combien de fois dans les lettres de démission avons-nous lu « je n’ai plus le temps, je suis épuisé ». Pourquoi n’acceptons-nous pas les personnes qui produisent en-dessous d’un certain seuil ou pourquoi ces personnes ne se sentent-elles pas acceptées ? Et en parlant de productivité, performativité, il serait grand temps de réfléchir sur la fréquence des instances, leur nombre, leur longueur, les conditions dans lesquelles est sont faites etc.La réflexion a déjà été amorcée par les élu-e-s allant dans les conseils de coordination et nous pensons que c’est une bonne voie de réflexion. Plus de réunions de 8 heures qui se terminent à 1h30 du matin les mercredis aux 2 semaines ! C’est clair qu’avec un tel rythme on exclue toutes les personnes (les parents-étudiant.e.s, les étudiant.e.s à temps plein, qui travaillent, etc.) qui ne peuvent pas consacrer tant de temps à l’implication militante. Or, cela devient un cercle vicieux où seul les gens qui sont disponibles peuvent être élus et où ceux-ci s’épuisent à travailler pour 10 !De plus, nous croyons qu’une relation de « sous-traitance » peut se créer en raison d’un manque d’autonomie des comités, ainsi que d’un certain contrôle de l’exécutif, notamment lié à leur droit de veto informel. Prenons l’exemple du message écrit en solidarité envers le peuple palestinien à Gaza. Il s’agissait d’une initiative du comité aux luttes sociales, qui un vendredi soir, en quelques heures a rédigé une lettre de solidarité qui visait, entre autres, à appeler à la manifestation de soutien du dimanche suivant. Et bien, avant de passer par tous les stades de vérification et d’approbation, la lettre et l’appui à la manifestation n’ont été envoyés que le dimanche matin, quelques heures avant la manifestation. Donc, le message de solidarité est devenu une sorte « d’outil » qui a plus servi l’image de l’ASSÉ que comme outil mobilisateur pour rallier des militant.e.s, et montrer l’appui dans la rue. 
+
+Nous devons nous poser la question sérieusement, est-ce que l’exécutif sait mieux qu’un autre comité quels sont les rôles et mandats de l’ASSÉ, ou quelle est la meilleure stratégie à adopter ? Qui est l’ASSÉ au final ? L’éxecutif ? L’équipe nationale ? Les étudiants et les étudiantes ? Il ne s’agit pas d’une affirmation, mais d’une réflexion…Souhaitons-nous vraiment autant de relations inégales dans une organisation militante bénévole ?
+
+Nous ne voulons pas de patrons, ni de patronnes, nous voulons militer ensemble sur un même pied d’égalité.
+
+Puisque nous nous opposons à la marchandisation du savoir, nous accordons une grande importance à la fluidité des idées et à la démocratisation des connaissances. Loin de nous l’idée de réclamer la propriété intellectuelle du travail qui a été fait par les membres du comité aux luttes sociales, mais nous voulons nommer que nous avons parfois ressenti un flagrant manque de reconnaissance de notre travail.
+
+À titre d’exemple, lorsque nous avons amené l’idée de participer activement à la grève mondiale, nous avons été reçu.e.s plutôt froidement par le reste du conseil de coordination et nous avons eu l’impression que nos idées étaient ridiculisées par nos pairs. Malgré tout, nous avons amorcé la mobilisation (production de textes de réflexion et de tracts, présentations lors des congrès, ateliers sur l’anti-impérialisme, etc. …), ce qui a participé à créer un certain enthousiasme sur le terrain pour la grève mondiale. Suite à l’intérêt démontré par les associations locales, le congrès de l’ASSÉ a adopté une journée de grève, ainsi que l’organisation d’une manifestation nationale le 22 novembre, qui fut un succès flamboyant.
+
+Nous aurions apprécié avoir plus de support dès le départ pour ce projet… et à défaut d’avoir senti du soutient, il aurait été agréable que notre travail soit reconnu. Cette expérience nous laisse l’impression que lorsqu’une personne ou un petit groupe d’individu a une idée novatrice et inattendue, elle doit « faire ses preuves » dans l’adversité. Par contre, si les dites idées connaissent un certain succès, c’est l’ensemble de l’organisation qui profite du crédit politique de ces initiatives.
+
+S’il est bien de se questionner sur des projets qui peuvent sembler marginaux, il faudrait faire plus attention à ne pas marginaliser les gens qui apportent ces idées sur la table. Sans avoir besoin de se faire flatter dans le dos éternellement, il aurait été agréable que soit reconnu explicitement le travail qui a été accompli, mais aussi les difficultés qui ont dû être surmontés.
+
+PISTES DE RÉFLEXION
+
+- Quelles réflexions avons-nous sur l’inclusion, la discrimination, les privilèges et les oppressions au sein des gens de l’équipe national ? (un exemple rapide étant ; que faire si nous voulons affilier des associations étudiantes anglophones sans avoir pensé au préalable à des stratégies d’inclusion, comme le bilinguisme et la traduction instantanée ?)
+- Comment éviter le phénomène de “sentiment d’être au-dessus de tout” qu’on peut avoir à force d’être sur un exécutif national?
+- Comment ramener le doute et l’ouverture d’esprit aux réflexions, comment favoriser le regard critique interne sur notre organisation ?
+- Comment éviter le corporatisme autour de l’organisation au détriment de l’implication de militant-es d’origines et de conditions de vie diversifiées ?
+- Il faudrait aussi réfléchir aux implications du fait qu’un groupe de personnes ait un droit de veto sur le travail des autres, qui offrent tout de même tous et toutes une militance gratuite et qui devraient avoir les mêmes statuts que les exécutant-e-s. Nous devons réfléchir sur les relations d’autorité que nous entretenons au sein de l’ASSÉ afin de ne pas reproduire des relations de patronage entre nous.
+- Que sacrifions-nous au nom de l’institutionnalisation de l’ASSÉ, de sa légitimation auprès des médias et de la population ? Quelles énergies seraient peut-être mieux consacrées si elles se penchaient aux relations internes plutôt que sur l’image et la crédibilité de l’ASSÉ ?
+
+LES RECOMMANDATIONS :
+
+- Transformer l’exécutif national en comité « organisation, coordination, instances » ou autre, selon les tâches principales à effectuer, en vue d’une plus grande horizontalité et égalité. (Par exemple, si le comité information fonctionne bien et de manière inclusive et égalitaire (nous ne voulons pas insinuer qu’en ce moment ce ne soit pas le cas, nous ne le savons pas), il n’y aurait peut-être pas besoin d’un-e secrétaire à l’information sur l’exécutif pour coordonner le travail).
+- S’assurer d’une rotation des personnes au sein de l’équipe nationale. Favoriser la participation et l’inclusion de personnes différentes et provenant de milieux variés, tout en minimisant la présence « d’éminences grises ».
+- Offrir des formations sur les oppressions/ les rapports de domination et sur l’inclusion, les privilèges et les luttes sociales aux associations étudiantes, et surtout, aux élu.e.s de l’équipe nationale.
+- Ajouter une notion de structure d’accueil pour les nouveaux et nouvelles dans l’équipe nationale incluant des rencontres, formations etc. Développer des structures/processus dans lesquels une attention particulière sera portée à ne pas reproduire des rapports de domination basés sur la classe, le sexe et la race.
+- Adopter un avis de motion pour la création d’un comité permanent sur les luttes sociales.
+- Favoriser la création des safe space et pour ce faire, pourquoi ne pas instaurer des gardien-ne-s du senti dans les cocos ? Choisir de meilleurs moments pour les réunions, établir des stratégies pour que celles-ci soient moins longues. Au début des réunions ; créer des espaces pour préciser comment on aime que les problèmes nous soient adressés, ou quels sont nos besoins spéciaux etc, afin de pouvoir se montrer plus sensible, plus inclusif et à l’écoute des critiques.
+- Ne pas avoir peur d’organiser de la mobilisation sur des sujets plus complexes et/ou divergents un peu de la campagne nationale. La lutte pour le bien commun que nous menons ne saura pas se réaliser si nous n’avons pas mené en parallèle un long travail pédagogique de réflexion sur les différentes oppressions et systèmes de pouvoir qui existent dans le monde. L’ASSÉ doit, selon nous, mettre autant d’énergie à promouvoir la gratuité scolaire, qu’à défendre le fait que nous ne voudrons pas de la gratuité scolaire si elle n’est pas accompagnée par un changement radical de la vision et du contenu de l’éducation, mais aussi de la société.
+
+Merci à ceux et celles qui nous auront lu jusqu’au bout. C’est à cause de toutes ces réflexions que nous avons prises la décision de démissionner. Nous ne claquons pas la porte, nous la laissons entrouverte. Nous avons beaucoup hésité à partir, car nous avons eu peur qu’en ce faisant, les critiques que nous soulevions retournent sous le tapis, bien que nous espérons nous tromper. Cependant, en ce moment, ces réflexions et pratiques font que nous ne nous sentons pas à notre place et que nous ne voulons plus militer dans cet espace. Nous sommes toutefois toujours ouvertes à la collaboration et nous serions prêtes à reconsidérer notre implication à l’ASSÉ dans le futur, car nous croyons encore que ce pourrait être un bel outil d’organisation, de coordination et de partage d’idées, d’expériences et de débat. 
+
+Nous vous disons, à la prochaine fois, parce que ce n’est que le début de la lutte. Celle-ci ne s’est jamais arrêtée et elle continuera…
+
+Solidarité, with Love and Rage,
+
+Myriam Tardif & Rushdia Mehreen
+
+Beatriz Munoz, collaboratrice du CLS
+
+Février 2013
+Merci à nos collaboratrices et collaborateurs, nos re-lecteurs et re-lectrices notamment les femmes de l’ancien comité femme
+
+publié sur le site d’orientation de l’ASSÉ à: [http://orientation.bloquonslahausse.com/lettre-de-demission-du-comite-aux-luttes-sociales/](http://orientation.bloquonslahausse.com/lettre-de-demission-du-comite-aux-luttes-sociales/) (pas actif). Mais ceci marche (voir p.18): [http://www.asse-solidarite.qc.ca/wp-content/uploads/2013/05/cahier-des-memoires-versio-finale.pdf](http://www.asse-solidarite.qc.ca/wp-content/uploads/2013/05/cahier-des-memoires-versio-finale.pdf)
+
+--
+
+[**Téléchargez en format zine pour lire**](http://rushdia.virtualstack.com/wp-content/uploads/2013/02/zine-démission-comité-aux-luttes-sociales-2013.pdf) |  [**Téléchargez zine pour imprimer**](http://rushdia.virtualstack.com/wp-content/uploads/2013/02/zine-démission-comité-aux-luttes-sociales-2013-imprimable.pdf)
+
+---
+
+Un autre texte intéressant sur le rapport de domination, à lire, aussi dans le contexte de l'ASSÉ:
+[http://orientation.bloquonslahausse.com/les-rapports-de-domination-en-et-hors-instance/](http://orientation.bloquonslahausse.com/les-rapports-de-domination-en-et-hors-instance/) (n'est plus actif). Voir p.56: [http://www.asse-solidarite.qc.ca/wp-content/uploads/2013/05/cahier-des-memoires-versio-finale.pdf](http://www.asse-solidarite.qc.ca/wp-content/uploads/2013/05/cahier-des-memoires-versio-finale.pdf)
