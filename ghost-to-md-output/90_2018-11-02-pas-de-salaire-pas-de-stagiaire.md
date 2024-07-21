@@ -7,7 +7,7 @@ tags: CUTE, magazine, Rémunération des stages, Stage, Travail étudiant
 excerpt: La reconnaissance du travail exécuté par les stagiaires, et conséquemment sa salarisation, devrait ainsi ultimement mener à l’abolition des stages. Libéré.e.s du statut de stagiaires, les nouvelles travailleuses et nouveaux travailleurs en formation pratique...
 ---
 
-**Par Félix Dumas-Lavoie, Camille Marcoux Berthiaume et Étienne Simard**
+**Par Félix Dumas-Lavoie, Camille Marcoux Berthiaume et Etienne Simard**
 
 La lutte pour la rémunération des stagiaires s’appuie sur un refus de travailler gratuitement au profit d'un employeur. À ce jour, la résistance face à cette exploitation éhontée s'est principalement manifestée par la revendication d'un salaire et des protections légales qui accompagnent la reconnaissance du statut de travailleuse et de travailleur. Or, rarement les stages en soi ont été remis en question. Et s’ils étaient carrément abolis ?
 
